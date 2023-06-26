@@ -10,6 +10,8 @@
 
 - 📫 How to reach me: --- Email: krishdevarya@gmail.com
 
+## My Stats: ##
+
 <div align="center">
   
 [![GitHub Streak](https://github-readme-streak-stats.herokuapp.com?user=CapnFusion&theme=dark&border_radius=25&date_format=M%20j%5B%2C%20Y%5D&border=EBEBEB)](https://git.io/streak-stats)

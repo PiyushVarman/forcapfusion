@@ -1,6 +1,6 @@
 ## Hey there!✌ I'm Krish D ##
 
-- 🔭 My interests: Space and Astronomy🌌🚀 ,Physics🔭 , Mathematics➗ ,Computer Science and Technology🖥💻 , Books (400+ books completed)📚 , Football⚽, and recently have ventured into the chaotic yet exhillarating world of Formula 1🏎🏁
+- 🔭 My interests: Space and Astronomy🌌🚀 ,Physics🔭 , Mathematics➗ ,Computer Science and Technology🖥💻 , Books (400+ books completed)📚 , Football⚽, and the chaotic yet exhillarating world of Formula 1🏎🏁
 
 - 🌱 I’m currently learning various different concepts (both academic and personal to help me become a better person overall!
 

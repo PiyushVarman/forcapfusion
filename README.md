@@ -6,9 +6,9 @@
 
 - 👯 I’m looking to collaborate on literature ,the intricate art of composing poems, coding, statistical analyses and personal growth projects
 
-- 💬 Ask me about Novels, Poems, Science, Maths , Space , Computers
-
 - 📫 How to reach me: --- Email: krishdevarya@gmail.com
+
+- 💬 Ask me about Novels, Poems, Science, Maths , Space , Computers
 
 ## My Stats: ##
 <div align="center">
